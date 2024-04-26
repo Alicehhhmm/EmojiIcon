@@ -1,2 +1,16 @@
 # EmojiIcon
-This is a library of emoji ICONS
+👋 This is a library of emoji ICONS 👀
+
+ ༼ つ ◕_◕ ༽つ
+
+🎯🚫 ✅ ♻️ ⚠️
+🐹 🐛 
+❄️ ⚡
+🍇 
+🌱 🍀 🌼 🌸 
+👋 🤔 😄 🤗 👦 🤝 👉 💪
+💡
+👯 👥 ⛹🏾‍♂️ 🎭🤺
+💬 📫 📦 📚 📝 
+🚢 🚄 🚀 🛡️ 🔥 ✨ 🎈 🕸 🔭 
+🧪 💻 🔨 🛠 ⚔️ 🏹 🥂 
